@@ -1,1 +1,1 @@
- BABE is so nice
+ BABE is travelling out of the country
